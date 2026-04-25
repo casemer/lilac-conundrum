@@ -1,0 +1,1 @@
+Pale elves that reside mostly underground, typically apart of the [[Golgari Swarm]] 

@@ -1,0 +1,1 @@
+the all knowing, all powerful god, Val. She determines our world, and we are just passengers in it... except we get a large amount of control, and can also add our own bits to the world. But her word is law and final.

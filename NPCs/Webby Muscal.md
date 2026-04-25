@@ -1,0 +1,1 @@
+halfling, missing teeth, gross dude who was close with [[Gump Genson]] (he lied, he wasn't actually close with them)

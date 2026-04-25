@@ -1,0 +1,1 @@
+A guarded crypt in the center of a square in the 6th precinct

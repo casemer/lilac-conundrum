@@ -1,0 +1,1 @@
+[[John Patsalos]]'s Haven, the safe place and now the party's home base

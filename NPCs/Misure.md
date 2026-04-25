@@ -1,0 +1,1 @@
+[[Golgari Swarm|Golgari]] Servant that serves the workers at the rot farm.

@@ -1,0 +1,1 @@
+6.5 ft tall insect humanoid, a guard of the [[Golgari Swarm]] entrance.

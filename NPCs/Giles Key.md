@@ -1,0 +1,1 @@
+Human worker in the rot farms. He went missing about 2 weeks ago. a month before that, he got moved to the 7th floor. He worked under [[Klbkch]] for 20 years in his lab until he got transferred.

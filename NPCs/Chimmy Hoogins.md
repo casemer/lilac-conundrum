@@ -1,0 +1,1 @@
+Friend of [[Babolax (Babo) Boffins|Babo]], he's a sports fan but also religious

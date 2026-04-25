@@ -1,0 +1,1 @@
+[[Dante Allegory]]'s pet spirit fox. He's chill as hell and can share what he sees through images.

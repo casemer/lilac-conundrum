@@ -1,0 +1,1 @@
+Main talking guard that guards the [[Golgari Swarm]] cave entrance. Says he met [[Stacy Fakename]] recently, he said he was suspicious of her, but she had the pass signed by the Golgari queen.

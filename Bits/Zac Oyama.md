@@ -1,0 +1,1 @@
+S-tier Dropout cast member, king of waiting for the perfect moment to strike
