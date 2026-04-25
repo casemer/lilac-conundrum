@@ -23,3 +23,5 @@ a goblin finds something in a hole, we go over to see, Quimbly, and sees there i
 Dante sends his spirit fox into the vent, [[Virgil]] (the fox) sends images to Dante about what is down there. Two dead bodies, one fully consumed by mushrooms, the other by the door trying to get out. Dante thinks we should go down to investigate. Wallace is able to get his mask back on before he fully gets consumed.
 
 Because Quimbly left the vent, Dante takes a peek himself, he sees the room was a lab, there is a large pulsating mass of mycelium in the room with the two men Virgil saw. The entire room is covered in mycelium. The party makes it out of the sewer successfully. 
+
+We ended our session here.
